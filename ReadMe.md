@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jquarker
+- 👋 Hi, I’m @Jquark
 - 👀 I’m interested in sleeping 
 - 🌱 I’m currently learning sleeping 
 - 💞️ I’m looking to collaborate on sleeping  
